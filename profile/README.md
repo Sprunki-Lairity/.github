@@ -2,7 +2,7 @@
 
 Welcome to Sprunki Lairity – a groundbreaking musical platform that ignites your creativity. Featuring captivating characters, a distinctive sound palette, and an intuitive interface, it’s the ultimate space for musical exploration and self-expression. Embark on your journey and let Sprunki Lairity inspire your next masterpiece!
 
-## Play Sprunki Lore Mod Now
+## Play Sprunki Lairity Now
 
 ### [Sprunki Lairity](https://sprunkisinner.org/sprunki-lairity)
 
