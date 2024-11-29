@@ -38,4 +38,6 @@ At its core, **Sprunki Lairity** blends rhythm and puzzle gameplay. Players arra
 
 ## Why Play Sprunki Lairity?
 
-This game offers a fresh take on rhythm-based games by merging eerie aesthetics with intuitive gameplay. Its unique sound creation mechanics, combined with spooky visuals and hidden surprises, provide an engaging challenge for players of all skill levels. Whether seeking a creative outlet or simply a fun way to pass the time, **Sprunki Lairity** invites players into a chillingly fun adventure where they can craft haunting melodies in a world like no other.
+Sprunki Lairity offers a fresh twist on rhythm-based games, merging eerie aesthetics with intuitive gameplay. Its unique mechanics for sound creation, paired with spooky visuals and hidden surprises, create a captivating experience for players of all skill levels.
+
+Whether you’re looking for a creative outlet or a fun way to pass the time, Sprunki Lairity delivers a chillingly exciting adventure. Dive into this haunting world to craft melodies like never before and explore a musical journey that’s truly one of a kind!
